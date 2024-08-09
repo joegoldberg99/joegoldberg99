@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @joegoldberg99
+- 👀 I’m interested in web dev and AI
+- 🌱 I’m currently learning Machine learning
+- 💞️ I’m looking to collaborate on Web dev
+- 📫 How to reach me @joegoldberg99
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i am not old as my name is!
